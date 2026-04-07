@@ -40,6 +40,3 @@ Dengan berbagai pilihan permainan dan metode pembayaran yang fleksibel, kuda248 
 ## Ringkasan
 
 kuda248 adalah platform slot online yang menyediakan berbagai permainan dengan sistem cepat, mudah, dan stabil.
-
-Untuk informasi lengkap dan akses langsung:
-https://kuda248.org
