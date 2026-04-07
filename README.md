@@ -11,9 +11,6 @@ https://kuda248.org
 
 kuda248 adalah platform slot online yang menawarkan pengalaman bermain yang cepat, stabil, dan mudah diakses.
 
-Jika kamu mencari kuda248, ini adalah website resmi:
-https://kuda248.org
-
 kuda248 menyediakan berbagai pilihan permainan dengan sistem yang dirancang minim lag dan optimal untuk penggunaan mobile.
 
 ---
